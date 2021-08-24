@@ -1,5 +1,6 @@
 - 👋 Hi, I’m Melancholy_Ru~~~~~~~~
-<!---
-ABplayer/ABplayer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- Here's my blog [HalfUniverse](http://ycrblog.top)(uhhhhhhhhh🤪🤪)
+- 😧Noob NetworkEngineer(CCNA HCNA.....Not my type.....🤡)
+- 😨SoftwareEngineer(Big Rookie)
+- <kbd>Musician</kbd>(That's for real ! ! ! 🤣🤣🤣)
+- So i still dont know why im here?(SHhhhhhhhhhhh🙊🙊🙊)
