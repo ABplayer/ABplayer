@@ -1,6 +1,2 @@
-- 👋 Hi, I’m Melancholy_Ru~~~~~~~~
-- Here's my blog [HalfUniverse](http://ycrblog.top)(uhhhhhhhhh🤪🤪)
-- 😧Noob NetworkEngineer(.....Not my type.....🤡)
-- 😨SoftwareEngineer(Big Rookie)
-- <kbd>Musician</kbd>(That's for real ! ! ! 🤣🤣🤣)
-- So i still dont know why im here?(SHhhhhhhhhhhh🙊🙊🙊)
+- 👋 Hi, I’m Melancholy_Ru
+- Refocus on this restless life
